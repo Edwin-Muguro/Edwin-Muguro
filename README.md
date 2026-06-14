@@ -16,4 +16,4 @@
 
 ## How to Reach Me
 - Email: edwinmuguro3@gmail.com
-- LinkedIn: 
+- LinkedIn: https://www.linkedin.com/in/edwin-kamau-9303471b8?
